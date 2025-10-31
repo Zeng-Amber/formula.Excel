@@ -1,1 +1,1 @@
-🎯advanced formula for day-to-day operation
+🎯Advanced formula for day-to-day operation
